@@ -1,6 +1,6 @@
 # cobainkurtle.github.io
 Sharina Deneiz Bolivar
----
+
 Ƹ̵̡Ӝ̵̨̄Ʒ*:.*:..*:...｡o○ Hi, this is my Github account. ○o｡..:*..:*..:*Ƹ̵̡Ӝ̵̨̄Ʒ
 
 *⋆*❀❁❀*⋆*❀❁I love alt rock!
